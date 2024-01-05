@@ -1,0 +1,3 @@
+# TrendifyCart
+# TrendifyCart
+# Shopping-Verse
